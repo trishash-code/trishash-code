@@ -50,7 +50,7 @@ To continuously learn, build meaningful projects, and grow as a software develop
 
 ### 📫 Connect With Me
 
-- 💼 LinkedIn: [linkedin.com/in/trisha-s-h-]
+- 💼 LinkedIn: [https://www.linkedin.com/in/trisha-s-h-43a33b305/]
 - 🌐 Portfolio: [Coming Soon]
 - 📧 Email: [trishachinnu259@gmail.com]
 
